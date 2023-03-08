@@ -5,3 +5,5 @@ My name is stephan kplin and i am soon to be a graduate of the yearup program pr
 Three things that have really  excited me about year up is the oppourtunity, i start internship at the end of this month and i couldent be more excited. I am also excited to be around alot of poeple that share my ethnicity it has really been nice being around people that look like me. Last but not least i am excited about everything that i have learned and i cant wait to apply it
 ## **Acomplishments** 
 The thing im **MOST** proud of is obtaining my project management certificate before the deadline, i worked very hard and was proud of myself.
+## A cool picture!
+![alt text](octocreep.jpg)
