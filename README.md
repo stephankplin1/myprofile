@@ -6,4 +6,11 @@ Three things that have really  excited me about year up is the oppourtunity, i s
 ## **Acomplishments** 
 The thing im **MOST** proud of is obtaining my project management certificate before the deadline, i worked very hard and was proud of myself.
 ## A cool picture!
+The picture below might not really describe me but this is the type of tattoos i was talking about when i said dark and thin lined. I actually want my friend to get this because he wants to go for a dark nautical theme for his tattoos.
+
 ![alt text](octocreep.jpg)
+
+*THAT'S ALL FOLKS*
+😆
+
+[My linkedin](https://www.linkedin.com/in/stephan-kplin-6a459620b/)
